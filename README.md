@@ -1,4 +1,4 @@
-# Toast | 20, he/him 🦀
+# Marci | 20, he/him 🦀
 
 Hi there, i'm just a guy who likes physics and toys around with low-level code.
 
